@@ -234,4 +234,4 @@ Overthrown is offered as a full free version with all features and updates inclu
 Download Overthrown today and embark on your adventure in kingdom management and city building!
 
 ---
-**Last updated:** 2026-09-25 13:25:30 UTC
+**Last updated:** 2026-09-25 18:20:41 UTC
